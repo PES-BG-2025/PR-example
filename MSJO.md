@@ -1,0 +1,1 @@
+Marcos Steven Juárez Ochoa - Ingeniería Mecánica
